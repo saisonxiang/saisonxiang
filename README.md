@@ -11,7 +11,8 @@ Here are a few things about me to get started:
 - 
 - (ﾉ≧∇≦)ﾉ ﾐ ┻━┻ My goal is to live life to the fullest and continue on the path I've found myself following for the last 5 years.
 - 
-- (◕◕✿)SEXYBOY(◕◕✿) I enjoy developing my ideas in virtual reality. Discord and Twitch are very powerful social networking applications.
+- (◕◕✿)SEXYBOY(◕◕✿) I enjoy developing my ideas in virtual reality. Discord and Twitch are very powerful social networking 
+- applications.
 - 
 - (◕◕✿)ORLY I also code HTML and CSS for my GitHub.io Business Website.
 - 
