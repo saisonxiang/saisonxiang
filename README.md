@@ -35,7 +35,7 @@ Here are a few things about me to get started:
 - Live Art and Entertainment) 
 - 
 - 人 
-- How to find me: Email (Please see my website for more info.)
+- How to find me: Twitter DM (@saisonxiang), Twitch DM (shy_shy_teddy), Facebook Messenger (Saison Xiang)
 - 
 - ʕ •ᴥ•ʔ 
 - Pronouns: He/him/teddy
