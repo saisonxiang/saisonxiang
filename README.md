@@ -3,7 +3,7 @@
 Here are a few things about me to get started:
 
 - ᕙ༼◕◕༽ᕤ I’m currently working on computational engineering topics, art and entertainment, simple webpage design 
-- with HTML/CSS MacOS operations research, open source writing, practice for profit business proposals, 
+- with HTML/CSS, MacOS operations research, open source writing, practice for profit business proposals, 
 - independent game development, applied chaos theory, spiritual/religious research, Chinese/Japanese/Korean 
 - language and cultural research, IRL streaming, online community writing, unicode emoji collection and 
 - utilization, robot building, music production and distribution, and coding research (computational as well 
