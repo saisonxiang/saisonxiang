@@ -1,4 +1,4 @@
-### Hi! I'm TOKI 👋
+### Hi! I'm IKE 👋
 
 Here are a few things about me to get started:
 
