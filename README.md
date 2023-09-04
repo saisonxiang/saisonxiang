@@ -49,7 +49,7 @@ Here are a few things about me to get started:
 - `Language: English. Muy poquito Espanol. Ni-hao. Chotto-matte. I like to virtually submerge in Chinese/Japanese/Korean/Spanish and just listen to it like music. I also dabble in AI-English and made up copy-paste languages/code games.`
 
 ----------------
-- `If you are interested in learning more about what a project I'm working on looks like, feel free to ask permission to see [this](https://github.com/saisonxiang/gee3wee/tree/⊂(◉‿◉)つ)`
+- `If you are interested in learning more about what a project I'm working on looks like, feel free to ask permission to see` [this](https://github.com/saisonxiang/gee3wee/tree/⊂(◉‿◉)つ)
 ----------------
 
 
