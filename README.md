@@ -1,8 +1,4 @@
-### ㅇㅅㅇ oh henlo dere, I'm IKE 👋
-
-
-
-Here are a few things about me to get started:
+### Henlo dere 👋 Here are a few things about me to get started:
 
 
 ᕙ༼◕◕༽ᕤ 
